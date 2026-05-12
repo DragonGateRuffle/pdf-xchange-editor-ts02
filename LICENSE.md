@@ -1,4 +1,4 @@
-# 
+# PDF-XChange Editor for PC | PDF-XChange Editor for Windows smart Extension: page-management & export-to-Word offers the most advanced PDF-XChange Editor for PC | PDF-XChange
 
 
 
